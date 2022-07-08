@@ -1,0 +1,22 @@
+- Leave the country
+- Get scuba diving certified
+- Make a new recipe every 2 weeks
+- Floss every day
+- Stop biting my nails
+- Run a 5k
+- Perform music for others
+- Hit my long-term gym goals
+- Plan some of every month ahead of time
+- Be able to improvise using simple chord progressions in every key on piano
+- Get better at communicating with family and friends
+- Learn one new dance move every month
+- Journal at least once per week
+- Go to the Seattle Art Museum on a free Thursday
+- Try stand up paddleboarding
+- Eat at a fine dining restaurant
+- Paint the canvases Kelsey & I bought
+- Finish decorating our apartment
+- Drink less alcohol
+- Get better at waking up on time
+- Ship one of my side projects
+- Go to CO to help my sister move to college

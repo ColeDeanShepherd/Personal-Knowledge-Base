@@ -1,0 +1,10 @@
+- Freeing myself from my brain’s compulsions
+- Being more confident
+	- Celebrating & dwelling more on successes than failures
+- Dancing
+- My body
+- Staying in touch with family & friends in TX
+- Biting nails
+- Figuring out exactly what I want out of life
+- Meeting new friends
+- Disciplined personal schedule
